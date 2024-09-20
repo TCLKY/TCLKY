@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @TCLKY
 - 👀 I’m interested in technology
-- 🌱 I’m currently learning too much thing haha
+- 🌱 I’m currently learning too much thing lol
 - 💞️ I’m looking to collaborate on various projects to perform my skills
 - 📫 How to reach me ? on discord with the pseudo "theclockmakerY"
 - 😄 Pronouns: he/him ouioui/baguette
